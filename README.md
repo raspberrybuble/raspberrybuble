@@ -53,9 +53,7 @@ $\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay to
 
   ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
 
-  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
-
-
+  ‎
 <div align="right"> 
 <div align="right">
 
@@ -67,11 +65,5 @@ $\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay to
   </a>
 </p>
 
-  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
-
-
- ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ 
-$\texttt{\color{#c8b96a}  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎"Oh, 愛してる oh, 愛してる."}$
- ‎ ‎ ‎  ‎    
-  ‎  ‎    ‎ ‎ ‎   ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎       ‎ ‎ ‎ ‎ ‎‎‎  ‎  ‎  ‎  ‎ my pretty [shell~~](https://github.com/killbones)
+my pretty [shell~~](https://github.com/killbones)
 ![](https://64.media.tumblr.com/cd7286ebc3572c8d55f5cc1b38f965d2/02f15474260aaca2-6f/s100x200/95802df1164e7e9a694efeee972c0d5109ac980f.gifv)
