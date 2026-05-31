@@ -9,7 +9,7 @@
 
  <div align="left">
    ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎ 
-  ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  <img align="left" width="99" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=FDDAEA&label=TOPSXS"> 
+  ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  <img align="left" width="175" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=FDDAEA&label=TOPSXS"> 
  
  <img align="left" width="45%" src="https://files.catbox.moe/at8ll1.png" /> 
 
