@@ -11,7 +11,7 @@
    ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎ 
   ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  <img align="left" width="105" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=FDDAEA&label=TOPSXS"> 
  
- <img align="left" width="37%" src="https://files.catbox.moe/at8ll1.png" /> 
+ <img align="left" width="45%" src="https://files.catbox.moe/at8ll1.png" /> 
 
    
 
@@ -46,7 +46,9 @@ $\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay to
 
 
 
-  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
+  ‎  ‎  ‎   ‎  ‎
+ 
+ ‎  ‎  ‎  ‎  ‎  ‎   ‎        ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
 
 
   ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
