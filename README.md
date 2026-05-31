@@ -1,17 +1,19 @@
 
 
+
+ ![](https://64.media.tumblr.com/6d688cc8c8654af312f5c5aad0f4eea7/8ef87d154ab84b6b-5f/s75x75_c1/87fc7fd3ef5a7cefa827fedbe8eb4289c4be7605.gifv)
+ 
  <div align="left"> 
 
- $\texttt{\color{#893811}‎ ‎ ‎"‎In half broken Japanese I wrote to you-"}$
+ $\texttt{\color{#E595AF}‎ ‎ ‎"‎In half broken Japanese I wrote to you-"}$
 
  <div align="left">
    ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎ 
-  ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  <img align="left" width="105" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&label=TOPSXS"> 
+  ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎ ‎ ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  <img align="left" width="105" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=FDDAEA&label=TOPSXS"> 
  
  <img align="left" width="37%" src="https://files.catbox.moe/at8ll1.png" /> 
 
    
-
 
 
 <div align="left"> 
@@ -29,13 +31,12 @@
   ‎         ‎       ‎        ‎      <sub> ‎ or Echo <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
 <div align="left">
 
-$\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ any prns , kin names are okay too }$ 
+$\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay too }$ 
 
 
   ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ᧔♡᧓
 
- ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#679641} c+h is fine, dnc and w2i }$
-  ‎  ‎  ‎  ‎  
+ ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#C86F90} c+h is fine, dnc and w2i }$
   
  <img align="right" width="37%" src="https://files.catbox.moe/g4tm5t.png" /> 
  
@@ -64,8 +65,11 @@ $\texttt{\color{#95b846} ‎‎  ‎‎⁽⁽ any prns , kin names are okay to
   </a>
 </p>
 
+  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎
+
 
  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎ 
 $\texttt{\color{#c8b96a}  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎"Oh, 愛してる oh, 愛してる."}$
  ‎ ‎ ‎  ‎    
-  ‎  ‎    ‎ ‎ ‎   ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎       ‎ ‎ ‎ ‎ ‎‎‎ $\texttt{\color{#bd7013}  ‎  ‎  ‎  ‎ All Art drawn by me : )    ‎  ‎}$
+  ‎  ‎    ‎ ‎ ‎   ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎     ‎ ‎ ‎  ‎       ‎ ‎ ‎ ‎ ‎‎‎  ‎  ‎  ‎  ‎ my pretty [shell~~](https://github.com/killbones)
+![](https://64.media.tumblr.com/cd7286ebc3572c8d55f5cc1b38f965d2/02f15474260aaca2-6f/s100x200/95802df1164e7e9a694efeee972c0d5109ac980f.gifv)
