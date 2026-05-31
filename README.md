@@ -28,15 +28,15 @@
 **Tabi**　
   ‎  ‎  ‎ ‎ ‎  ‎ ‎  ‎ 
   ‎      
-  ‎         ‎       ‎        ‎      <sub> ‎ or Echo <img src="https://i.ibb.co/rvKX2w5/IMG-7763.png">  
+  ‎         ‎       ‎        ‎      <sub> ‎ or Echo <img src="https://64.media.tumblr.com/edc5bd1dbee7f914a11ca395b8aded24/e747c25959932209-db/s75x75_c1/48caf76493c6a6f940009ca378369653578265ff.gifv">  
 <div align="left">
 
-$\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay too }$ 
+<sub> $\texttt{\color{#FDB1C6} ‎‎  ‎‎ any prns , kin names are okay too }$ 
 
 
-  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ᧔♡᧓
+  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ˖Ი𐑼⋆
 
- ‎  ‎  ‎  ‎  ‎  ‎ $\texttt{\color{#C86F90} c+h is fine, dnc and w2i }$
+ ‎  ‎  ‎  ‎  ‎  <sub>‎ $\texttt{\color{#C86F90} c+h is fine, dnc and w2i }$
   
  <img align="right" width="37%" src="https://files.catbox.moe/g4tm5t.png" /> 
  
@@ -57,15 +57,15 @@ $\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay to
 <div align="right"> 
 <div align="right">
 
-[straw](https://ttto.straw.page/)‎‎    ‎  $\texttt{\color{#FDDAEA}𖹭‎‎}$ [READ BEFORE INT](https://rentry.co/seabiscuits)‎‎    ‎  $\texttt{\color{#FDDAEA}𖹭‎‎}$ ‎  [prns](https://en.pronouns.page/@t.o.p) ‎
+[straw](https://ttto.straw.page/)‎‎    ‎  $\texttt{\color{#FDDAEA}⸝⸝‎‎}$ [READ BEFORE INT](https://rentry.co/seabiscuits)‎‎    ‎  $\texttt{\color{#FDDAEA}⸝⸝‎‎}$ ‎  [prns](https://en.pronouns.page/@t.o.p) ‎
 
 
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e0555b&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=FDB1C6&bar_color_cover=false">
   </a>
 </p>
 
-my pretty [shell~~](https://github.com/killbones)
+<sub> my pretty [shell~~](https://github.com/killbones)
 ![](https://64.media.tumblr.com/cd7286ebc3572c8d55f5cc1b38f965d2/02f15474260aaca2-6f/s100x200/95802df1164e7e9a694efeee972c0d5109ac980f.gifv)
 
  $\texttt{\color{#E595AF}‎ ‎ ‎"‎I want to write a poem for you every day"}$
