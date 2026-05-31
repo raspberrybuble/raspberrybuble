@@ -65,7 +65,7 @@
   </a>
 </p>
 
-<sub> my pretty [shell~~](https://github.com/killbones)
+<sub> my pretty [shell](https://github.com/killbones)
 ![](https://64.media.tumblr.com/6a86293a7a46e8992740ded0b1ffb0b7/344137cd87435dc4-1b/s100x200/e61182dca3e4bf9100bcfabc5ef2c07c36cacb07.gifv)
 
  $\texttt{\color{#E595AF}‎ ‎ ‎"‎I want to write a poem for you every day"}$
