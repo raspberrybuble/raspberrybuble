@@ -5,8 +5,7 @@
  
  <div align="left"> 
 
- $\texttt{\color{#E595AF}‎ ‎ ‎"‎I want to become a cozy person,
-I want to write a poem for you every day"}$
+ $\texttt{\color{#E595AF}‎ ‎ ‎"‎I want to become a cozy person,"}$
 
  <div align="left">
    ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎ ‎ 
