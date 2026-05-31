@@ -57,7 +57,7 @@ $\texttt{\color{#FDB1C6} ‎‎  ‎‎⁽⁽ any prns , kin names are okay to
 <div align="right"> 
 <div align="right">
 
-[extra / rentry](https://rentry.co/fighting-on-the-heights)‎‎    ‎  $\texttt{\color{#bd7013}𖹭‎‎}$ ‎  [prns](https://pronouns.cc/@OUT-OF-TIME) ‎
+[straw](https://ttto.straw.page/)‎‎    ‎  $\texttt{\color{#FDDAEA}𖹭‎‎}$ [rentry](https://rentry.co/ecthoz)‎‎    ‎  $\texttt{\color{#FDDAEA}𖹭‎‎}$ ‎  [prns](https://en.pronouns.page/@t.o.p) ‎
 
 
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
