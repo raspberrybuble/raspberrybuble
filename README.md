@@ -27,15 +27,15 @@
 <img src="https://cdn.imgchest.com/files/765f569fe846.gif" width="30px"> <img src="https://cdn.imgchest.com/files/115c72ae9450.gif" width="30px"> <img src="https://cdn.imgchest.com/files/a0a43d28d6c5.png" width="600px"> <img src="https://cdn.imgchest.com/files/568654da0acd.png" width="25px"> <img src="https://deltarune.wiki/images/Tenna_overworld_spray.png?cb=80ppe8&h=thumb.php&f=Tenna_overworld_spray.png" width="60px">
 
 <details closed>
-  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} mentions!!}}$</summary>
+  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} NAME}}$</summary>
   
-| ${{\color{#925283} spamton}}$ [𖹭](https://github.com/directfies) ㅤ ${{\color{#925283} cathy}}$ [𖹭](https://github.com/HardRockWitch) ㅤ ${{\color{#925283} sharpness}}$ [𖹭](https://github.com/CONEXlONN) ㅤ ${{\color{#925283} wumble}}$ [𖹭](https://github.com/tirgery123) ㅤ ${{\color{#925283} dice}}$ [𖹭](https://github.com/SpaceKn1ghts) ㅤ ${{\color{#925283} sammi/sib}}$ [𖹭](https://github.com/Iomedy) |
+|  words  |
 |------------------------------|
-| <sup> ㅤ  ${{\color{#925283} pt-awards:}}$ ${{\color{#572b72} og-winner}}$ [𖹭](https://github.com/pt-awards) ㅤ ${{\color{#925283} pt-players:}}$ ${{\color{#572b72} known-player}}$ [𖹭](https://github.com/pt-players) ㅤ ${{\color{#925283} pt-stars:}}$ ${{\color{#572b72} pretty-skin}}$ [𖹭](https://github.com/pt-stars) ㅤ ${{\color{#925283} pt-fashion:}}$ ${{\color{#572b72} coolest-ponies}}$ [𖹭](https://github.com/pt-fashion) </sup> |
+| words |
 </details> 
 
 <details closed>
-  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} important!}}$</summary>
+  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} NAME}}$</summary>
 
 | ${{\color{#925283} you \space must \space let \space me \space know \space if \space you're \space a \space minor \space so \space i'm \space aware, \space that \space is \space my \space only \space boundary \space before \space you \space decide \space to \space be \space friends \space with \space me!}}$ |
 |------------------------------|
