@@ -35,7 +35,7 @@
 <img src="https://files.catbox.moe/hhz2zh.png" align="left" width="315px">
 
 ㅤ
-<sub> i luv [bones](https://github.com/killbones)ㅤㅤ<img src="https://files.catbox.moe/joovfo.png" align="center" width="200px" height="100" > 
+<sub> i luv [bones](https://github.com/killbones)ㅤㅤ<img src="https://files.catbox.moe/joovfo.png" align="center" width="150px" height="100" > 
 
 ***Tabi***  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ <sub> *or Echo*
 
