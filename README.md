@@ -1,49 +1,58 @@
+ 
+ <img src="https://64.media.tumblr.com/720cba04194c4d216a2fb10d116719cd/4fc7571dcd617d8d-0f/s400x600/f151648241f1bf661a93ec5b3672b248494056fa.gifv" align="right" width="700px" height="50px" >
+ㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ
+ㅤㅤㅤ
+ㅤㅤㅤ
+ㅤㅤㅤ
  <div align="center">
 
-<img src="https://cdn.imgchest.com/files/92fbcbe5300b.png" align="left" width="315px">
+<img src="https://files.catbox.moe/z4dp8b.png" align="left" width="315px">
+ㅤㅤㅤ
+ㅤㅤㅤ
+ㅤㅤㅤ
+<img align="right" width="150" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=red&label=astronauts">
 
-<img src="https://deltarune.wiki/images/thumb/Shadowguy_overworld_jumping.gif/85px-Shadowguy_overworld_jumping.gif.webp?cb=5e5dsr&h=thumb.php&f=Shadowguy_overworld_jumping.gif" width="35px"> ![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=925283&label=I_<3_TV!) <img src="https://deltarune.wiki/images/Shadowguy_battle_saxophone.gif?cb=eayq1o&h=thumb.php&f=Shadowguy_battle_saxophone.gif" width="40px">
 
-| <img src="https://cdn.imgchest.com/files/9a1353e4e17b.png" width="60px"> ㅤ ${{\color{#f9f0b1} what}}$ ${{\color{#572b72} happened}}$ ${{\color{#925283} to}}$ ${{\color{#f9f0b1} the}}$ ${\textsf{\color{#572b72}old}}$ ${\textsf{\color{#925283} times,}}$ ${{\color{#f9f0b1} spamton?}}$ ㅤ <img src="https://cdn.imgchest.com/files/03422bb629ae.png" width="60px"> |
-|------------------------------|
+<div align="left">
+ㅤㅤㅤ
+ ㅤㅤㅤㅤㅤㅤ
+ ㅤㅤㅤ
+ ㅤㅤㅤㅤㅤㅤ
+ ㅤㅤㅤ
+ ㅤㅤㅤ
+ ㅤㅤㅤ
+ ㅤㅤㅤ
+ ㅤㅤㅤ
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=18&duration=3300&pause=200&color=f9f0b1&center=true&width=435&height=28&lines=Looks+like+the+stars+won't+shine+much+longer...;Give+me+your+hand!+WE'RE+RUNNING+OUT+OF+TIME!;Oh,+oh,+oh,+oh,+oh,+oh,+oh,+oh,+oh.;Aren't+you+excited+now?;I+can+see+the+shining+moon+above;O.+M.+G.!!!+Stay+round+and+round;P.+R.+E.+T.+E.+N.+D.+to+be+mad...;I+don't+really+care+now!" align="center" alt="Typing SVG" width="370px"/></a> 
 
-<div align="center">
+ ㅤㅤㅤ [*strawpage*](https://another-dimension.straw.page/) ㅤㅤㅤ [*pronouns*](https://en.pronouns.page/@t.o.p) ㅤㅤㅤ [*spam account*](https://github.com/70RD)
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=18&duration=3300&pause=500&color=925283&center=true&width=435&height=28&lines=I+know+you+understand%2C+I+can't+leave+you+alone.;I+gave+you+my+time%2C+but+you+can't+pick+up+the+phone.;Life+done+been+so+tragic%2C+oh%2C+it+won't+leave+me+alone.;Try+not+to+be+obsessive%2C+I+fucked+up%2C+oh+girl%2C+I+know." alt="Typing SVG" width="370px"/></a>
-
-<img src="https://cdn.imgchest.com/files/c569d2c06fa5.png" width="20px"> ㅤ  [*ata*](https://dirkpool.atabook.org) ${{\color{#572b72} ⋆}}$ [*strawpage*](https://artesto.straw.page) ${{\color{#572b72} ⋆}}$ [*fluffle*](https://fluffle.cc/seils) ${{\color{#572b72} ⋆}}$ [*prns*](https://pronouns.cc/@artesto) ㅤ  ${{\color{#f9f0b1} 𐔌՞ ܸ.ˬ.ܸ՞𐦯}}$
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=f2n6prthunxkl481yp07tfdlz&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=572b72&bar_color_cover=false" width="250px">
-  </a>
-</p>
 
-| ${{\color{#f9f0b1} Ponytown's}}$ ${{\color{#925283} Tenna!}}$ [★](https://github.com/pt-stars) [★](https://github.com/pt-walk-of-fame) |
-|------------------------------|
 
-<img src="https://deltarune.wiki/images/Tenna_funnytext_know_tv.png?cb=jwbvtr&h=thumb.php&f=Tenna_funnytext_know_tv.png" width="140px">
+<img src="https://files.catbox.moe/hhz2zh.png" align="left" width="315px">
+
+ㅤ
+<sub> i luv [bones](https://github.com/killbones)ㅤㅤ<img src="https://files.catbox.moe/joovfo.png" align="center" width="200px" height="100" > 
+
+***Tabi***  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ <sub> *or Echo*
+
+<sub> any pronouns , 6teen ('09)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ c+h and w2i encouraged
  
-<img src="https://cdn.imgchest.com/files/765f569fe846.gif" width="30px"> <img src="https://cdn.imgchest.com/files/115c72ae9450.gif" width="30px"> <img src="https://cdn.imgchest.com/files/a0a43d28d6c5.png" width="600px"> <img src="https://cdn.imgchest.com/files/568654da0acd.png" width="25px"> <img src="https://deltarune.wiki/images/Tenna_overworld_spray.png?cb=80ppe8&h=thumb.php&f=Tenna_overworld_spray.png" width="60px">
-
 <details closed>
-  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} NAME}}$</summary>
+  <summary>  ${{\color{#f9f0b1} Blinkies}}$</summary>
   
-|  words  |
-|------------------------------|
-| words |
-</details> 
-
-<details closed>
-  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} NAME}}$</summary>
-
-| ${{\color{#925283} you \space must \space let \space me \space know \space if \space you're \space a \space minor \space so \space i'm \space aware, \space that \space is \space my \space only \space boundary \space before \space you \space decide \space to \space be \space friends \space with \space me!}}$ |
-|------------------------------|
-| ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ  ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ  ${{\color{#925283} i \space also \space prefer \space close \space friends \space over \space 18, \space thank \space you!}}$ |
-| ${{\color{#572b72}   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ  ㅤ P.S!!! \space i'm \space a \space touch \space comfort! \space please \space cuddle \space with \space us \space i'd \space really \space appreciate \space it!!!}}$ |
-</details>
-
-<img src="https://cdn.imgchest.com/files/8078b62ad76b.png" width="820px">
-
-| <sup> ${{\color{#572b72} CREDITS \space TO:}}$ ${{\color{#925283} vnnysidecc}}$ ${{\color{#572b72} for \space the \space graphics!}}$ [★](https://www.tumblr.com/vnnysidecc) </sup> |
-|------------------------------|
+<img src="https://64.media.tumblr.com/9f223bfcd46ca8b65f71cb221d52d448/31ec50e3915b4208-88/s100x200/a0bd50b93124df02deb64901f4664f7881e7ae48.gifv" 
+ align="right" width="100px"> 
+<img src="https://64.media.tumblr.com/d3e9da4bf128a30c83f73dceaabd54e6/3c74d06b377fdc9b-9b/s250x400/a7e1fcb1424dcf884adb3ec3f21fec51211ee471.gifv" align="right" width="100px"> 
+<img src="https://64.media.tumblr.com/ea563d51e22f624a4d1972286d972273/f02a1cb68b17106a-67/s250x400/aad9287d55600ceb6e7e4872329b9335e344ac6d.pnj" align="right" width="100px">
+<img src="https://64.media.tumblr.com/93cefa5803118ac61ff87493fb7ea6a4/b0312ff9d0c62524-6a/s250x400/c592c596873ea254febeb99644841919f72d1105.gifv" align="right" width="100px">
+<img src="https://64.media.tumblr.com/1e0753aca743e2996f650680e7ca3ab6/c6c0d41d8a286cfd-da/s250x400/8d6b4e30a7a230c75953e4a79d1d17e88269962e.jpg" align="right" width="100px">  
+<img src="https://64.media.tumblr.com/9b26a6915f3f86e9fb6d947e0b0ed1ef/87454b61189c796e-dd/s250x400/0274f6baf19e43e77dd7387e739916bcb8db18e1.gifv" align="right" width="100px">  
+<img src="https://64.media.tumblr.com/7eb7069cbb44527e2f13a36211e802e5/473cb7d99dd6bf5d-98/s100x200/6936a404de7258b18501139b36d7d710fe2789f0.gifv" align="right" width="100px">  
+<img src="https://64.media.tumblr.com/b2c254c24e7f4ecf27826075e9b6f7b3/be6584158349bdf9-df/s250x400/1554e770362f8f30f7cea75bd2e1b3149d7666a3.gifv" align="right" width="100px">  
+<img src="https://64.media.tumblr.com/c2c4dee0c01056c06de6c449ecc16586/ca53f3881d319fc8-d2/s100x200/1ab6cb97e846b8b2a64fc3f0fec46ed363adb257.gifv" align="right" width="100px">  
+<img src="https://64.media.tumblr.com/66be78981d48a18392116c3fa952fca8/5732e589548c1c67-e1/s100x200/be997d5173da32608fe599b3487a99f86d03ac10.gifv" align="right" width="100px">  
+<img src="https://64.media.tumblr.com/9e13890085fe512988f0a5db990ca7dc/851a1ef7d7001340-7e/s100x200/e7177411120b8cfc1b7e0ad0903621d82564ffa2.gifv" align="right" width="100px">  
